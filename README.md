@@ -18,3 +18,4 @@
 -----
 grazyraissa7@gmail.com
 
+![Captura de tela 2024-04-17 233345](https://github.com/GraziellyRaissa1/carregando/assets/147439694/077e3fc7-5a1f-4b7b-aedc-d297db3651e8)
